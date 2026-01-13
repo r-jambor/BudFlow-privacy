@@ -1,3 +1,9 @@
+# Support
+
+If you need help or have any questions, contact:
+jamby.risa@gmail.com
+
+-----------------------------
 # Privacy Policy
 
 Last updated: January 2026
